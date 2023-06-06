@@ -16,3 +16,6 @@ https://resumeworded.com/freelance-work-on-linkedin-key-advice <br/>
 🔑 How to contact recruiters <br/>
 https://resumeworded.com/contact-recruiters-on-linkedin-key-advice <br/>
 https://www.theforage.com/blog/basics/how-reach-out-recruiter-linkedin <br/>
+
+🔑 How to make linkedin URL more attractive
+https://evaboot.com/blog/linkedin-url-example
